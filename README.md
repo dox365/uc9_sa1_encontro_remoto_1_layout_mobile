@@ -1,0 +1,2 @@
+# uc9_sa1_encontro_remoto_1_layout_mobile
+uc9_sa1_encontro_remoto_1_layout_mobile
